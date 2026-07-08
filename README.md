@@ -14,5 +14,5 @@
 - ﹑　<img width="20" height="20" alt="cvsw9y" src="https://github.com/user-attachments/assets/8df2a8ba-ed38-4f15-b2fb-70ad0343f405" />　﹒　　**likes** : friends,video games,music,bunnies,chocolates,more..　　★　︵︵　
 - ╰ 　﹒ **fandoms** : mostly roblox fandoms like,, roblox arg n bad things (theres more)　<img width="20" height="20" alt="tumblr_1691ee3a4c190c3a27ba29ed09021df3_2c4147dd_75" src="https://github.com/user-attachments/assets/37bfefeb-b011-43ff-8bf7-dae0f7833a7c" />
 
- <img width="40" height="40" alt="matthiiii" src="https://github.com/user-attachments/assets/78881494-b11d-4d9e-b006-617d60ae678f" /> ' note : took me hours to do this, ill update when i had more ideas byee <img width= "53" height="21" alt="lfxihf" src="https://github.com/user-attachments/assets/747ea34f-460e-4b10-9c61-4d9efc69c165" />
+ <img width="40" height="40" alt="matthiiii" src="https://github.com/user-attachments/assets/78881494-b11d-4d9e-b006-617d60ae678f" /> ' note : ill update when i had more ideas byee (use white theme for better view) <img width= "53" height="21" alt="lfxihf" src="https://github.com/user-attachments/assets/747ea34f-460e-4b10-9c61-4d9efc69c165" />
 

@@ -4,7 +4,7 @@
 > images and gifs are belong to the original creator!! <img width="20" height="20" alt="tumblr_3c6ccee87726eeb32102dc67f77f4f79_115f3c4b_75" src="https://github.com/user-attachments/assets/9ce4d5a5-f36b-4773-822b-f526ea25e83d" />　
 
 - ◜﹐ <img width="23" height="23" alt="estr1" src="https://github.com/user-attachments/assets/a8630f2c-7781-47ef-9935-ab3c452368b3" /> ﹒ call me **sprinkles** or kina/any nicknames im ok with﹒
-- ⊹ ࣪　﹒ 　pronouns　:　you can use **she/her** or **any pronouns** <img width="20" height="22" alt="10cce4ea" src="https://github.com/user-attachments/assets/25344583-37e5-4be9-9aa6-5f87b62faabe" />
+- ⊹ ࣪　﹒ 　pronouns　:　you can use **she/her** or **any pronouns** ,  <img width="20" height="22" alt="10cce4ea" src="https://github.com/user-attachments/assets/25344583-37e5-4be9-9aa6-5f87b62faabe" />
 - ﹑<img width="20" height="20" alt="tumblr_ceff82f05551244c51b46bb013abe824_c86b5c5f_75" src="https://github.com/user-attachments/assets/eb71f521-4a00-4001-9710-1a067b5ba328" />　　﹒ 　 **birthday**　﹒　**17th april**!! bday reminder hehe   ◞ ✦
 
  <img width="700" height="10" alt="blue-divider" src="https://github.com/user-attachments/assets/faa76897-ca43-4777-b87e-046ceb5b9248" />

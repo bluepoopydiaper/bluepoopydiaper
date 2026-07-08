@@ -11,7 +11,7 @@
 
 
 -  (˶ᵔ ᵕ ᵔ˶) 　　﹒ 　**nationality is asian** : **im an introvert** also kinda shy.　<img width="20" height="23" alt="4b91ad53-da98-46f6-a4ad-4a27afec5748" src="https://github.com/user-attachments/assets/753e7967-73d9-40d4-b7af-a767191c2eba" />
-- ﹑　<img width="20" height="20" alt="cvsw9y" src="https://github.com/user-attachments/assets/8df2a8ba-ed38-4f15-b2fb-70ad0343f405" />　﹒　　**likes** : friends,video games,music,bunnies,chocolates,hm..　　★　︵︵　
+- ﹑　<img width="20" height="20" alt="cvsw9y" src="https://github.com/user-attachments/assets/8df2a8ba-ed38-4f15-b2fb-70ad0343f405" />　﹒　　**likes** : friends,video games,music,bunnies,chocolates,more..　　★　︵︵　
 - ╰ 　﹒ **fandoms** : mostly roblox fandoms like,, roblox arg n bad things (theres more)　<img width="20" height="20" alt="tumblr_1691ee3a4c190c3a27ba29ed09021df3_2c4147dd_75" src="https://github.com/user-attachments/assets/37bfefeb-b011-43ff-8bf7-dae0f7833a7c" />
 
  <img width="40" height="40" alt="matthiiii" src="https://github.com/user-attachments/assets/78881494-b11d-4d9e-b006-617d60ae678f" /> ' note : took me hours to do this, ill update when i had more ideas byee <img width= "53" height="21" alt="lfxihf" src="https://github.com/user-attachments/assets/747ea34f-460e-4b10-9c61-4d9efc69c165" />

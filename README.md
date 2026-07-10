@@ -1,4 +1,4 @@
-##  <p align="center"> about me (ᴗ͈ˬᴗ͈)
+##  <p align="center"> about me (ᴗ͈ˬᴗ͈) 
 <p align="center">
  <img width="670" height="500" alt="matt and skeet yay" src="https://github.com/user-attachments/assets/8ee4c41c-3801-45a7-b05c-be9b5f8d9488" />
 
@@ -14,5 +14,5 @@
 <img width="200" height="100" alt="stinkymatt" src="https://github.com/user-attachments/assets/6a408e79-3dfd-4024-a99b-d9b42952a2f9" />
 
 <p align="center">
- images and gifs are belong to the amazing og creators!! <img width="20" height="20" alt="cvsw9y" src="https://github.com/user-attachments/assets/8df2a8ba-ed38-4f15-b2fb-70ad0343f405" />
+ images and gifs are belong to amazing og creators!! <img width="20" height="20" alt="cvsw9y" src="https://github.com/user-attachments/assets/8df2a8ba-ed38-4f15-b2fb-70ad0343f405" />
  

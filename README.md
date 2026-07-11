@@ -9,7 +9,7 @@
  <p align="center">
  <img width="700" height="10" alt="blue-divider" src="https://github.com/user-attachments/assets/faa76897-ca43-4777-b87e-046ceb5b9248" />
 <p align="center">
-  (˶ᵔ ᵕ ᵔ˶) 　　﹒ 　feel free to check my carrd 4 more information abt me! (wip) .　<img width="20" height="23" alt="4b91ad53-da98-46f6-a4ad-4a27afec5748" src="https://github.com/user-attachments/assets/753e7967-73d9-40d4-b7af-a767191c2eba" />
+  (˶ᵔ ᵕ ᵔ˶) 　　﹒ 　idont have any ideas wht 2 write here so,, bye .　<img width="20" height="23" alt="4b91ad53-da98-46f6-a4ad-4a27afec5748" src="https://github.com/user-attachments/assets/753e7967-73d9-40d4-b7af-a767191c2eba" />
 <p align="center">
 <img width="200" height="100" alt="stinkymatt" src="https://github.com/user-attachments/assets/6a408e79-3dfd-4024-a99b-d9b42952a2f9" />
 
